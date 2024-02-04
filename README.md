@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @johnmarki
-- 👀 I’m interested in creative design and direction.
+- 👀 Creative design and direction.
 - 🌱 I’m currently learning blockchain technology.
 - 💞️ I’m looking to collaborate on creative projects that will change the world.
 - 📫 Reach me via DM.
